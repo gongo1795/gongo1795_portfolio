@@ -10,6 +10,7 @@ gongo1795_portfolio
 
 영옥
 
+dksl
 아ㅓㄹ이ㅏㅇㄹ우끽끼
 내가 맞아
 
